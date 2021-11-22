@@ -1,1 +1,1 @@
-# PRO27-tablet-TA
+# Tablet-SPCK-PRO-C27-Teacher-Activity
